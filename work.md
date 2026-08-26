@@ -73,7 +73,7 @@ title: Work
 
 1. Editor-in-Chief, co-founder of [Revista 078](https://revista078.xyz/)
 
-2. [VOLUME #69](https://archis.org/volume/out-now-volume-69-stress-management/)
+2. [VOLUME #69](https://archis.org/volume/architecture-for-the-wound/)
 
 3. [European Review of Books](https://europeanreviewofbooks.com/friendship-is-revolutionary-interview-with-marina-garces/)
 
